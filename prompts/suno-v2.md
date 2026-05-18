@@ -1,0 +1,12 @@
+Melancholic Japanese electronic ballad,
+Visual novel ending theme,
+Soft felt piano,
+Warm aging synth pads,
+Subtle tape hiss and digital artifacts,
+Fragile female vocal with restrained emotion,
+Slightly synthetic Vocaloid-inspired tuning,
+Dreamlike nostalgic atmosphere,
+Bittersweet alternate timeline feeling,
+Slow emotional build with explosive final chorus,
+Lingering emotional aftertaste,
+BPM 82-86
